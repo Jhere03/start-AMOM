@@ -1,0 +1,2 @@
+# start-AMOM
+Para dedicar
